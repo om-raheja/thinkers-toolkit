@@ -1,6 +1,6 @@
-# critical-thinking
+# Thinker's Toolkit 
 
-On August 25, 2024 I finished reading "The Thinker's Toolkit" by Morgan D. Jones. 
+On August 25, 2024, I finished reading "The Thinker's Toolkit" by Morgan D. Jones. 
 
 Little did I realize it when I finished the book, but the techniques I learned and practiced while reading the book were so powerful that I ended up using them all the time.
 
